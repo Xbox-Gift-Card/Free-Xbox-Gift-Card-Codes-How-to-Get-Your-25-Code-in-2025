@@ -2,7 +2,7 @@
 
 Are you an avid Xbox gamer looking for ways to enhance your gaming experience without spending a dime? Well, you're in luck! We’re offering a **free $25 US Xbox Gift Card Code** to help you upgrade your gaming library, purchase in-game items, or even subscribe to Xbox Game Pass! Keep reading to learn how you can claim your free gift card code and maximize your gaming experience in 2025.
 
-### [✅👉CLICK HERE TO GET NOW!](https://shorturl.at/ix5Po)
+### [✅👉CLICK HERE TO GET NOW!](https://justfree.xyz/xbox/go/)
 
 ## Why Should You Claim Your Free $25 Xbox Gift Card Code?
 
